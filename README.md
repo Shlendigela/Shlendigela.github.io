@@ -1,3 +1,2 @@
 # Shlendigela.github.io
-Fun chicks and shit
-LOL fuck this shit
+Gamers rise up, unite!
